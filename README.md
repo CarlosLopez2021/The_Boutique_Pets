@@ -1,1 +1,1 @@
-# *The Boutique Pets
+# The Boutique Pets
